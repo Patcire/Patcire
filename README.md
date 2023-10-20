@@ -1,4 +1,4 @@
-### Patricio 🐱‍🐉 -  Web development student - he/him ᓚᘏᗢ
+### Patricio  -  Web development student 🐱‍🐉
 
 
 
