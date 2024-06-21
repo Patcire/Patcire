@@ -1,4 +1,4 @@
-###  FrontEnd developer 🐱‍🐉
+###  Frontend developer 🐱‍🐉
 
 
 
